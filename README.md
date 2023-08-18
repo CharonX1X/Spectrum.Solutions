@@ -1,2 +1,9 @@
-# Spectrum.solutions-source-code
-This is josiah's worst cheat hes made
+Dont buy this dogshit 
+its made by a paster/pedo that has went under many names and pasted stuff from me and my github personally 
+Names {
+Alternate Access
+Byfron.solutions
+Spectrum.solutions 
+Task.cc
+}
+all of his scripts have been pasted and stolen code from developers on github and such he is also know to use chatgpt for his coding
